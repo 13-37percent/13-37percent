@@ -5,7 +5,6 @@
 
 <p align="center">
 𝖼ẖαი𝖼ᥱ ♡‌ѕ 𝘨սᥱѕꞎ 𝟭𝟑𝟑𝟳
-
    
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
